@@ -1,2 +1,1 @@
-# Precarious
---> setup.py 
+ALL LEGIT WORKING CODES 100% NO CAP
